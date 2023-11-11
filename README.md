@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **kkailas113@gmail.com**
 
-- 🫠Motivation quotes **whatever we believe ourselves and ability comes true for us 😉**
+- 🫠Motivation quotes: **whatever we believe ourselves and ability comes true for us 😉**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
